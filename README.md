@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tylshubangi
+- 👋 Hi, I’m Shubangi
 - 👀 I’m interested in everything I can understand
 - 🌱 I’m currently learning so much stuff from college and outside.
 - 💞️ I’m looking to collaborate on (not yet)
